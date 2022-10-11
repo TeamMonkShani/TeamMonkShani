@@ -1,4 +1,4 @@
-Main Channel :-  @TeamMonkShani
+Main Channel :-  @TEAMMONKSHANI
 
 Owner :- @MonkShani
 
